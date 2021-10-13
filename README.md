@@ -1,0 +1,4 @@
+- I’m interested in IA
+- Studying Golang, Python and C
+- I have no free time, so I can't collaborate right now
+- @KitiKitiTM ok Telegram
